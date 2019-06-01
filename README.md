@@ -1,5 +1,5 @@
 # hello-world
 easy start
 
-Here is my study task
-I wrote Hello world in C++ programing language
+™˚∆£¡™µ££˚∆¡™£∆˚¡oihwe;£¬¡™µ™¡££˚∆¡™µ¡≤˜™fhkajndsf.™£snadfnkjawelibwelkajbflhjabwbjhasd,˚∆jb,˚∆™
+™≥£¡≥™≤µ£≥µ¡™ £µ˜™ ≥µ¡√™˙∆≥£√≥¡™˜µ´¬˙¨˙™£π∆¡™£™¨ˆ
